@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @samynathan-arumugam
+- 👀 I’m interested in solving problems created by me 💡
+- 🌱 I’m currently learning how to not procrastinate ⏳
+- 💞️ I’m looking to collaborate on anything that makes me feel alive 🌟 and keeps me well-fed—both in 🍔 and 💸
+- 📫 How to reach me: samynathan.arumugam@integris-education.com
+- 😄 Pronouns: he/him, or simply “Samy” in any language 🗣️
+- ⚡ Fun fact: I’m a master at overthinking 🤔, a pro procrastinator ⏳, and a passionate biker 🚴‍♂️!
